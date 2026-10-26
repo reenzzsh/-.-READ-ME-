@@ -1,2 +1,2 @@
-# -.-READ-ME-
+# ✧ .  ⌢⌢ README
 Wip Scoot! SCOOT!!! 
