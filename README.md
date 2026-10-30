@@ -1,7 +1,8 @@
 # ✧ .  ⌢⌢ READ ME
+(first time making github idk)
 
      .    eyya!   Im ren I go by she/her/any
-    ,    ⌢⌢  .       I rarely called by any random names
+        ⌢⌢  .       I rarely called by any random names
 
 .  ⌢⌢ My huge interest is PHIGHTING, and Pupi Midnight Munchies! 
 I am an Tween and FBF Animator and a Artist! 
@@ -27,3 +28,4 @@ Kicking me playfully!
 Long Interact and Interact while flirting
 Cover me everytime I want to move somewhere
 And etc, I'll tell you to stop if I'm uncomfortable of what you're doing! 
+, 
